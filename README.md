@@ -1,1 +1,1 @@
-# -poland-trip-2026
+# poland-trip-2026
